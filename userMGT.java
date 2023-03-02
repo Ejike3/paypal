@@ -1,7 +1,7 @@
 onyi
 aloo
-uju
-paul
+chidi
+ignatius
 dumebi
 muna
 oge
